@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mav017
+- 👋 Hi, I’m Maverick Aquino
 - 👀 I’m interested in motorcycle riding
 - 🌱 I’m currently learning web designing
 - 💞️ I’m looking to collaborate on my soon to be clients
